@@ -1,0 +1,1 @@
+# Procesor-post-mocy-i-miecz-witlny.
